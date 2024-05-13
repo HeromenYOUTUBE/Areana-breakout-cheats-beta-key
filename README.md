@@ -78,3 +78,8 @@
 - Font
 - Font outline
 - Font size
+
+- ![9561c27a4e284899f99becd35ff104972](https://github.com/HeromenYOUTUBE/Areana-breakout-cheats-beta-key/assets/84266831/a3b3c98c-9954-4970-825e-dd7047bd885d)
+![9b3b2531f7f81498f9d5cf90556b9d9a](https://github.com/HeromenYOUTUBE/Areana-breakout-cheats-beta-key/assets/84266831/ffe29867-8ea8-4048-a3f3-997701d124b9)
+![64a740dc542507c8dcf38988ac3cfe91](https://github.com/HeromenYOUTUBE/Areana-breakout-cheats-beta-key/assets/84266831/e24a7eb5-892b-4a95-af54-6520b9fa7013)
+
